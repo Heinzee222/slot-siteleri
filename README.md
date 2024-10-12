@@ -1,4 +1,5 @@
-<img src="https://github.com/user-attachments/assets/68752428-a8f1-4a37-84ab-8be07ba6d876"><a href="https://rb.gy/8vsugf"></a>
+<a href="https://rb.gy/8vsugf"><img src="https://github.com/user-attachments/assets/68752428-a8f1-4a37-84ab-8be07ba6d876"></a>
+
 # [slot siteleri](https://rb.gy/8vsugf)
 
 ## slot siteleri arasında en güvenilir site [İLELEBET](https://rb.gy/8vsugf)
